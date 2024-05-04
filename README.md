@@ -17,7 +17,7 @@ What you need to use this software:
 
 We are not responsible for your use of this software, we only have the copyright, for any fraud or scam against a third party, we are not responsible.
 
-+15817044264 (WhatsApp) or Telegram: https://telegram.me/cryptostatictrader / https://t.me/cryptostatictrader or Website: https://btcflash.trade/
+Telegram: https://telegram.me/cryptostatictrader / https://t.me/cryptostatictrader or Website: https://btcflash.trade/
 
 Telegram: https://telegram.me/cryptostatictrader or https://t.me/cryptostatictrader or Website: https://btcflash.trade/
 
